@@ -1,1 +1,2 @@
-IT Certifications ~ Shekhar Chaudhary
+IT Certifications & Others ~ Shekhar Chaudhary
+
